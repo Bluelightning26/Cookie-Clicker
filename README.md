@@ -13,5 +13,3 @@ I learned how to...
 
 A lot of reinforcement of my previous Swing knowledge was done too which I believe to be good,
 as the more I use it, the more I will remember it!
-
- !https://cloud-gb9l77xai-hack-club-bot.vercel.app/02025-02-02_19-00-12.mp4
